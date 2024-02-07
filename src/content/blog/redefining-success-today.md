@@ -10,6 +10,7 @@ tags:
   - vent
   - cooking
   - zen
+  - firstPost
 description: Why and how I'm reframing my perspective through severe burnout.
 ---
 
