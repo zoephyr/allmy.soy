@@ -1,7 +1,7 @@
 ---
 author: Zoey Uerban
-pubDatetime: 2024-02-07T12:00:00Z
-modDatetime: 2024-02-07T12:00:00Z
+pubDatetime: 2024-02-07T12:45:00Z
+modDatetime: 2024-02-07T12:45:00Z
 title: Redefining Success - Just for Today
 slug: redefining-success-today
 featured: true
