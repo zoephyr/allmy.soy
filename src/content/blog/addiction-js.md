@@ -31,4 +31,24 @@ I am not dead yet, despite the fact I should be. I deserve to be alive.  I deser
 
 # I know myself... 
 
-I know myself, loosely, but I do. How I wish though, I still did not even partially know myself.
+I know myself, loosely, but I do. How I wish though, I still did not even partially know myself. To know the self even a bit invites a bit of controversy into your daily life. You always will wonder if you're defining yourself too loosely or too strictly based on a myriad of emotions, values, interests, and various other outside factors. The point of the matter is
+
+# You can't predict a damn thing.
+
+You can't predict a damn thing. You gotta get used to that: Every moment is a learning opportunity. Every moment is a chance to subvert your expectations. Every moment is going to be this new thing in this experience every single time - and it's beautiful. That's what gives beauty to everything is the pain you're going through. 
+
+It's a lot like that Zen saying:
+
+# Practicing Zen should be...
+
+Practicing Zen should be like swallowing a red-hot iron ball. I can't emphasize this saying enough: maintaining your center and moving with the flow requires focus and determination to move at the level of those people we look up to. And cultivating that artform is something that falls nicely into my values. Heres the thing though about the hard part:
+
+# The Hard Part is actually doing it.
+
+The hard part is actually doing the things you want to do and changing the things you want to change. Changing my routine to better suit the life I want to live is not easy, but I do what I can. The hardest part for me is saying goodbye to these experiences with substances I've had, because they opened up the doors - I just happened to be the one to lock myself out in the process. 
+
+But if there's one thing I have to say for what I want anyone to learn from me:
+
+# Think wisely about the things you do today
+
+Think wisely about the things you do today, because you will still be dealing with them tomorrow.
